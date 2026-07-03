@@ -1,4 +1,4 @@
-#  
+#  Experience be a lucky block like never before with be a lucky block best Scripts, the #1 Script. Includes god mode and auto-collect for unbeatable
 
 
 
